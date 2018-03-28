@@ -2,8 +2,8 @@
 # study-test
 
 SUINY!!!
-SUINYY%%%%%
+SUINYY@@@@
+Hello~~~~ I'm hojeong.
 
-1
-2
-3
+
+second edit.
