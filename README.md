@@ -2,7 +2,7 @@
 # study-test
 
 SUINY!!!
-SUINYY@@@@
+SUINYY%%%%%
 
 1
 2
